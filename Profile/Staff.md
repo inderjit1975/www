@@ -1,5 +1,5 @@
 ### Staff Profiles
 
-1. 
+1. InderjitKaurMCA
 
 
